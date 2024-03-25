@@ -1,8 +1,8 @@
 #   Olá, Sou Fernanda Lobato! <3
 
-🏠 Moradora da linda cidade de Betim / MG 
+🏠 Moradora da linda cidade de Contagem/ MG 
 
-👩‍🎓🖥️📖 Estudante de sistema de informção, Filha da PUC/Betim
+👩‍🎓🖥️📖 Estudante de sistema de informção
 
 🐱🍲🌄☕ Escrava do Gato Salém. Viaciada em café, comida e viagens
 <div align = "center">
